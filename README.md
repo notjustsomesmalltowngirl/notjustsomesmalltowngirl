@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @notjustsomesmalltowngirl
+- 👋 Hi, I’m Peace darasimi
 - 👀 I’m interested in singing, playing guitar, re-watching Hamilton, reading, watching movies and programming(duh!)
-- 🌱 I’m currently learning, all the songs in Hamilton, to play the guitar, python programming(among some others), being a better person/aunt to my neice.
+- 🌱 I’m currently learning, all the songs in Hamilton, to play the guitar, python programming(among some others).
 - 💞️ I’m looking to collaborate on Maybe an app in Python
 - 📫 How to reach me : Peacedara0@gmail.com
 - 😄 Pronouns: she/ her
